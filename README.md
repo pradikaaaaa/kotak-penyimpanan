@@ -1,0 +1,1 @@
+Buat asset pribadi sahaja
